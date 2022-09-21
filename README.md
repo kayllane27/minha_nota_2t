@@ -1,2 +1,1 @@
-# minha_nota_2t
-aluna: kayllane emmanoelle/ n: 13- 1H
+Leticia Mayara numero 16 primeiro ano I
